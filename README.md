@@ -1,4 +1,4 @@
-hi!!! im going to start this off by saying that im 18, and if youre under 16 probably dont try friending me i will most likely be very Uncomfortable and want to Run if i find out, especially if youre being weird, so keep that in mind and interact w caution ^^
+hi!!! im going to start this off by saying that im 18, and if youre under 16 (still cautious of you) probably dont try friending me i will most likely be very Uncomfortable and want to Run if i find out, especially if youre being weird, so keep that in mind and interact w caution ^^
 ----------------------------------------------------------------------------------------------------------
 IMPORTANT INFO:
 
