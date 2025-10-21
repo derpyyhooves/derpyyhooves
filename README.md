@@ -6,7 +6,7 @@ IMPORTANT INFO:
 i am awkward and my mood fluctuates easily, sorry if im acting off, however im almost always nice, or may i be quiet, but if i am somehow rude for no reason then i apologise as im usually not unless provoked somehow, and even then i still might not do anything, im a sensitive person in general, i find it hard to voice my discomforts at times, so please try to keep this in mind especially if youre gonna say something weird right off the bat, i dont always like talking/typing, using words can be overwhelming at times especially if im not in a good mood, i know it might sound cringe but please try to be understanding of this, im usually happy to boop/use emotes though, if you dont like that, then dni
 
 ----------------------------------------------------------------------------------------------------------
-i block freely, however it is most likely due to someone doing smth in my basic dni list, or making me uncomfortable, but it is not limited to just that list. be sure to scroll down to learn more about me if youd like! ^^
+i block freely, however it is most likely due to someone doing smth in my basic dni list, or making me uncomfortable, but it is not limited to just that. that being said, be sure to scroll down to learn more about me if youd like! ^^
 ----------------------------------------------------------------------------------------------------------
 ۫ ⭒<img width="400" height="8" alt="image" src="https://github.com/user-attachments/assets/03bc2dde-1be7-4915-8f95-957f15e8bae6" /> ۫ ⭒★
 
