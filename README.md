@@ -12,7 +12,7 @@ i block freely, however it is most likely due to someone doing smth in my basic 
 
 ۫ ⭒you can call me: tyler/cat ۫ ⭒★
 
-۫ ⭒(im usually with my girlfriend/boyfriend (wife/husband) (jasmin!) ۫ ⭒★
+۫ ⭒(im with my girlfriend/boyfriend (wife/husband) a lot ۫ ⭒★
 
 ۫ ⭒
 
