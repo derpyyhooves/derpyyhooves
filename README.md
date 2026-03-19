@@ -30,7 +30,7 @@ i block freely, however it is most likely due to someone doing smth in my basic 
 
 ۫ ⭒i like: mlp, rping on pt!, drawing (digitally and on my drawing tablet), my ocs!!! ۫ ⭒★
 
-۫ ⭒roblox, fnf, music, etc. ۫ ⭒★
+۫ ⭒roblox, fnf, crk, music, etc. ۫ ⭒★
 
 ۫ ⭒
 
