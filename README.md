@@ -1,4 +1,5 @@
-DONT COPY, USE AS INSPO, SCREENSHOT, OR REPOST/REDISTRIBUTE ANY OF MY SKINS PLEASE! THANK YOU.
+𝗗𝗢𝗡𝗧 𝗖𝗢𝗣𝗬, 𝗨𝗦𝗘 𝗔𝗦 𝗜𝗡𝗦𝗣𝗢, 𝗦𝗖𝗥𝗘𝗘𝗡𝗦𝗛𝗢𝗧, 𝗢𝗥 𝗥𝗘𝗣𝗢𝗦𝗧/𝗥𝗘𝗗𝗜𝗦𝗧𝗥𝗜𝗕𝗨𝗧𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦 𝗣𝗟𝗘𝗔𝗦𝗘! 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨.
+
 feel free to int/c+h! hi!!! im going to start this off by saying that im 18, and if youre under 16 probably dont try friending me (i can int/c+h! thats fine :3), but i will most likely be very Uncomfortable and want to Run, especially if youre being weird, so keep that in mind and interact w caution ^^, im usually uncomfortable with friending people i dont know well enough, and will most likely end up unfriending you later if i am sent a request (i find it hard to not accept them when being asked upfront and/or i get sent a friend request out of the blue, im awkward and i feel bad about it, so sorry, but warnings given!!)
 ----------------------------------------------------------------------------------------------------------
 IMPORTANT INFO:
