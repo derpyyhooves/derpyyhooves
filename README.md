@@ -1,6 +1,6 @@
-<img width="99" height="59" alt="stamp_1779822097_0994ddf16b9845009a1b0539e8723da4" src="https://github.com/user-attachments/assets/bdb2ce52-777a-4f1e-b86a-a68f182c81e7" />
+<img width="99" height="59" alt="598389123-bdb2ce52-777a-4f1e-b86a-a68f182c81e7" src="https://github.com/user-attachments/assets/6558028c-51da-4293-ac27-5fa7d11f959c" />
+<img width="99" height="56" alt="598343347-2cef4e51-260a-4438-9353-2e89968552d6" src="https://github.com/user-attachments/assets/2821b33e-5c17-4e95-a9d0-14aa214a1004" />
 
-<img width="99" height="56" alt="stamp-pony" src="https://github.com/user-attachments/assets/2cef4e51-260a-4438-9353-2e89968552d6" />
 
 𝗗𝗢𝗡𝗧 𝗖𝗢𝗣𝗬, 𝗨𝗦𝗘 𝗔𝗦 𝗜𝗡𝗦𝗣𝗢, 𝗦𝗖𝗥𝗘𝗘𝗡𝗦𝗛𝗢𝗧, 𝗢𝗥 𝗥𝗘𝗣𝗢𝗦𝗧/𝗥𝗘𝗗𝗜𝗦𝗧𝗥𝗜𝗕𝗨𝗧𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦 𝗣𝗟𝗘𝗔𝗦𝗘! 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨.
 
