@@ -1,5 +1,3 @@
-<img width="101" height="57" alt="ezgif-8d4c44ad0e1a2ee8" src="https://github.com/user-attachments/assets/dba8a3f2-5f07-4847-9ce8-62176a3f1971" />
-<img width="99" height="56" alt="ezgif-8bde2b06874212ec" src="https://github.com/user-attachments/assets/a843eede-1672-4af3-b356-10b7eb18655c" />
 
 
 𝗗𝗢𝗡𝗧 𝗖𝗢𝗣𝗬, 𝗨𝗦𝗘 𝗔𝗦 𝗜𝗡𝗦𝗣𝗢, 𝗦𝗖𝗥𝗘𝗘𝗡𝗦𝗛𝗢𝗧, 𝗢𝗥 𝗥𝗘𝗣𝗢𝗦𝗧/𝗥𝗘𝗗𝗜𝗦𝗧𝗥𝗜𝗕𝗨𝗧𝗘 𝗔𝗡𝗬 𝗢𝗙 𝗠𝗬 𝗦𝗞𝗜𝗡𝗦 𝗣𝗟𝗘𝗔𝗦𝗘! 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨.
